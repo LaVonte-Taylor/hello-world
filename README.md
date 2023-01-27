@@ -1,4 +1,4 @@
 ## About Me
 - Left handed
 - draws
-- *Omega **ultra** gamer 
+- *Omega* **ultra** gamer 
