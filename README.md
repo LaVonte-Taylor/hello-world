@@ -1,2 +1,4 @@
-# hello-world
-My introductory repository
+## About Me
+- Left handed
+- draws
+- *Omega* **ultra** gamer 
